@@ -1,5 +1,5 @@
 
-That sounds like an exciting journey you're on! Here's an expanded version of your GitHub profile README:
+That sounds like an exciting journey you're on! 
 
 👋 Hi there, I'm @jennierj05!
 
